@@ -1,0 +1,3 @@
+- Buenas buenas, soy @guatemalangel
+- Pronouns: they/them/elle
+- Interested in all things supply chain managenent and start up related.
