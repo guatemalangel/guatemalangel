@@ -1,3 +1,5 @@
 - Buenas buenas, soy @guatemalangel
 - Pronouns: they/them/elle
 - Interested in all things supply chain managenent and start up related.
+- (I also really like to learn and build things and listen to music and romaticize life <3)
+- Based in Austin, TX and happy to link up over a bouldering sesh (my treat) or tea (not my treat, jk) :)
